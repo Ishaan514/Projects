@@ -27,11 +27,9 @@ Mostly Finished Bridge:
 
 ## Results
 
-On competition day our bridge was able to hold 14 kilograms, which was significantly more than the other bridges and over 50 times its own weight.
+On July 20, 2018 our bridge was able to hold 14 kilograms, which was significantly more than the other bridges and over 50 times its own weight.
 
-Clip of bridge testing in slow motion:
-
-![Video of bridge testing](https://www.youtube.com/watch?v=4ilwCkxYl1M)
+Watch the [bridge testing in slow motion](https://www.youtube.com/watch?v=4ilwCkxYl1M). Spencer is adding weight until the bridge breaks.
 
 Picture of bridge after breaking:
 
